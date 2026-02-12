@@ -1,3 +1,3 @@
-This is a repository of royalty free sounds (sourced fro pixabay)
+This is a repository of royalty free sounds (sourced from pixabay)
 
 Made this for a school project but you are free to use this
